@@ -1,0 +1,1 @@
+# <img src="blob:chrome-untrusted://media-app/bb9d7413-aae5-4f05-80b4-b941e1a95ec3" alt="2_20261001_114239_0001.png"/><img width="1414" height="2000" alt="image" src="https://github.com/user-attachments/assets/c8541fb4-8533-49c3-b019-d1a9ce64816a" />
